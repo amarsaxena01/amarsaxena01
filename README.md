@@ -35,9 +35,9 @@ We provide expert, reliable, and timely services for your diverse needs:
 ### 📩 Get in Touch
 Ready to get started? Whether you are looking for a job or need professional services, we are here to help!
 
-*   **Email:** [Yahan apni Email ID dalein]
-*   **Phone/WhatsApp:** [Yahan apna Number dalein]
-*   **Office Address:** [Yahan apna address dalein]
+*   **Email:** amarsaxena.itd@gmail.com
+*   **Phone/WhatsApp:** +91 8218369523
+*   **Office Address:** E-260 First Floor Lal Building Omicron-1 Greater Noida
 
 ---
 *Helping you grow, one service at a time.*
